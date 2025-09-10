@@ -3,7 +3,7 @@
 #### ab toh har pal ye teri yaad sata ti hai
 ##### ab toh har pal ye teri yaad sata ti hai
 
-# Rul Te Gaey Aan Per Chus Bari Ai Ay
+# Rul Te Gaey Aan Per Chas Bari Ai Ay
 ##### O mara hay tey mara sai yaar johay
 ##### Kujh vi howey o sada pyar johay
 ##### Kyon mahiya da kyon Dholey da
