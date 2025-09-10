@@ -1,14 +1,13 @@
-# konvict
-## Konvict, music and you know we upfront
-### I see you windin' and grindin' up on that pole
+
+# I see you windin' and grindin' up on that pole
 ### I know you see me lookin' at you and you already know
 #### I wanna fuck you (fuck you), you already know
 #### I wanna fuck you (fuck you), you already know, girl
 
 
-# Shimmy shimmy yay, shimmy yay, shimmy ya (drank)
-## Swalla-la-la (drank)
-### Swalla-la-la (swalla-la-la)
+###### Shimmy shimmy yay, shimmy yay, shimmy ya (drank)
+###### Swalla-la-la (drank)
+## Swalla-la-la (swalla-la-la)
 
 
 # Rul Te Gaey Aan Per Chus Bari Ai Ay
@@ -20,13 +19,13 @@
 ### Bismillah Karan Bismillah Karan
 
 
-### I got this girl
-### She don't go to school
-## I got this girl
-## Because she twerk!
-# Cuz she twerk!!
-# Cuz she twerk, twerk, twerk!!
-# Turn up bitch!!!!
+# I got this girl
+#### She don't go to school
+#### I got this girl
+#### Because she twerk!
+#### Cuz she twerk!!
+#### Cuz she twerk, twerk, twerk!!
+#### Turn up bitch!!!!
 
 
 # mai aksar soch ke ro paouna
