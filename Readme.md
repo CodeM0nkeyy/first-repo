@@ -1,4 +1,4 @@
-# THESE HOE AINT LOYAL 
+# THESE HOES AINT LOYAL 
 ### pehle kabhi kabhi gham tha
 #### ab toh har pal ye teri yaad sata ti hai
 ##### ab toh har pal ye teri yaad sata ti hai
