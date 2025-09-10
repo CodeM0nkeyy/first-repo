@@ -11,22 +11,6 @@
 ### Swalla-la-la (swalla-la-la)
 
 
-Can't read my, can't read my
-No, he can't read my poker face
-(She's got me like nobody)
-Can't read my, can't read my
-No, he can't read my poker face
-(She's got me like nobody)
-P-p-p-poker face, f-f-fuck her face (mum-mum-mum-mah)
-P-p-p-poker face, f-f-fuck her face (mum-mum-mum-mah)
-
-
-# Where you think you're goin', baby!!???
-Hey, I just met you, and this is crazy
-But here's my number, so call me maybe
-And all the other boys try to chase me
-But here's my number, so call me maybe
-
 # Rul Te Gaey Aan Per Chus Bari Ai Ay
 
 ### O mara hay tey mara sai yaar johay
